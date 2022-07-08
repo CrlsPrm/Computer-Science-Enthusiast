@@ -1,1 +1,1 @@
-# Acm1ptTex
+# computer science enthusiast
